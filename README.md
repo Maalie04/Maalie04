@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Maalie04
+- 👋 Hi, I’m Jamaal Lawson
 - 👀 I’m interested in learning and progression
 - 🌱 I’m currently learning how to open and use resources in a repository
 - 💞️ I’m looking to collaborate on upcoming projects with my team members
